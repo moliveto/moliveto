@@ -3,7 +3,7 @@
 MARCELO OLIVETO  
 SENIOR SOFTWARE ENGINEER/PROJECT LEADER  
 +54 9 3517 54-9571  
-[LinkedIn](https://www.linkedin.com)  
+[LinkedIn](https://www.linkedin.com/in/marcelo-oliveto/)  
 marcelo.oliveto@gmail.com  
 
 ### ABOUT ME
